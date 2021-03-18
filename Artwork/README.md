@@ -1,4 +1,4 @@
-All artwork is copyright @daibaorabbit on instagram and @tdk4 on plurk.
+All artwork is copyright @daibaorabbit on instagram and dafei @Pixiv (@tdk4 on plurk).
 
 All Artwork tokens have been minted by the approval of @daibaorabbit and @tdk4.
 
